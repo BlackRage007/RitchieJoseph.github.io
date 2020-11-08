@@ -1,1 +1,0 @@
-# RitchieJoseph.github.io
